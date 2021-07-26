@@ -9,7 +9,7 @@ First Appellate Authority under RTI Act
 **\[Address of Public Authority\]**  
 **\[Date\]**
 
-Sub: First Appeal under the RTI Act 2005
+Subject: First Appeal under the RTI Act 2005
 
 Dear FAA,
 
